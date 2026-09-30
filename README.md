@@ -8,4 +8,4 @@ Contract Bridge poker tg:https://t.me/Jntm178  @fox888999a
 ![乐山二七十](1-1.png)
 ![乐山二七十](1-2.png)
 ![乐山二七十](1-3.png)
-![乐山二七十](1-4.png)
+
